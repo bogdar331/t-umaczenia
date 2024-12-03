@@ -1,11 +1,15 @@
-Endless waste
-Vsekde niczto
-Our patience runs thin
-Nasz mir zakonczitl se
-Here we stand ready
-Vsi my gotovi
-Let the battle begin!
-Nehaj bitva nastati
+<big>Glorious Land<br>
+<b>Slavny Kraj</big></b>
+
+
+Endless waste<br>
+**Vsekde niczto** <br>
+Our patience runs thin<br>
+**Nasz mir zakonczitl se**<br>
+Here we stand ready<br>
+**Vsi my gotovi**<br>
+Let the battle begin!<br>
+**Nehaj bitva nastati**<br>
 
 Hit back! Charge!
 As the forces arrive
