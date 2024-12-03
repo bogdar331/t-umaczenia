@@ -10,40 +10,31 @@ Here we stand ready<br>
 **Vsi my gotovi**<br>
 Let the battle begin!<br>
 **Nehaj bitva nastati**<br>
-
-Hit back! Charge!
-As the forces arrive
-Shove! Go! Push!
-Leave no foes left alive!
-
-Facing the storm, battered and torn
-Burja pr^ed nami, pobity i razdrti
-Fighting for our Glorious Land!
-Bojebahmo za nasz slavny kraj
-Come take our hand, together we stand
-Grabi nasza ruku, zajedno travamo 
-Defending our Glorious Land!
-Branimo nasz slavny kraj
-
-Darkness falls
-Noczny mrak
-And the screams fade away
-Obratil kriky w cisziny
-Home of the fallen
-Dom czto upastli
-And the home of the brave!
-I dom vseh herojev
-
-Facing the storm, battered and torn
-Fighting for our Glorious Land!
-Come take our hand, together we stand
-Defending our Glorious Land!
-Facing the storm, battered and torn
-Fighting for our Glorious Land!
-Come take our hand, together we stand
-Defending our Glorious Land!
-Facing the storm, battered and torn
-Fighting for our Glorious Land!
-Come take our hand, together we stand
-Defending our Glorious Land!
+<br><br>
+Hit back! Charge!<br>
+As the forces arrive<br>
+Shove! Go! Push!<br>
+Leave no foes left alive!<br>
+<br><br>
+Facing the storm, battered and torn<br>
+**Burja pr^ed nami, pobity i razdrti**<br>
+Fighting for our Glorious Land!<br>
+**Bojevamo za nasz slavny kraj**<br>
+Come take our hand, together we stand<br>
+**Grabi nasza ruku, zajedno travam**o<br>
+Defending our Glorious Land!<br>
+**Branimo nasz slavny kraj**<br>
+<br><br>
+Darkness falls<br>
+**Noczny mrak**<br>
+And the screams fade away<br>
+**V Ciszinu obratil krik**<br>
+Home of the fallen<br>
+**Dom czto upastli**<br>
+And the home of the brave!<br>
+**I dom vseh herojev**<br>
+<br><br>
+Facing the storm, battered and torn<br>
+Fighting for our Glorious Land!<br>
+Come take our hand, together we stand<br>
 
