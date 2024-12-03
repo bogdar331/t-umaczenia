@@ -3,13 +3,13 @@
 
 
 Endless waste<br>
-**Vsekde niczto** <br>
+**Vsekde ^zalost** <br>
 Our patience runs thin<br>
-**Nasz mir zakonczitl se**<br>
+**U^z nasz mir konczati se**<br>
 Here we stand ready<br>
 **Vsi my gotovi**<br>
 Let the battle begin!<br>
-**Nehaj bitva nastati**<br>
+**Nehaj bitva izgor^eti se**<br>
 <br><br>
 Hit back! Charge!<br>
 As the forces arrive<br>
@@ -18,6 +18,7 @@ Leave no foes left alive!<br>
 <br><br>
 Facing the storm, battered and torn<br>
 **Burja pr^ed nami, pobity i razdrti**<br>
+**Vokrug vihor, my v potom i krov**
 Fighting for our Glorious Land!<br>
 **Bojevamo za nasz slavny kraj**<br>
 Come take our hand, together we stand<br>
