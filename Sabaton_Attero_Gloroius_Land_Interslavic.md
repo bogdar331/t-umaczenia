@@ -21,9 +21,9 @@ Facing the storm, battered and torn<br>
 Fighting for our Glorious Land!<br>
 **Bojevamo za nasz kraj**<br>
 Come take our hand, together we stand<br>
-**Grabi moju ruku, jedno travamo**<br>
+**Grabi moju ruku, jedno idemo**<br>
 Defending our Glorious Land!<br>
-**Branimo nasz slavny kraj**<br>
+**braniti nasz slavny kraj**<br>
 <br><br>
 Darkness falls<br>
 **Noczny mrak**<br>
