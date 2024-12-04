@@ -34,7 +34,7 @@ And the screams fade away<br>
 Home of the fallen<br>
 **Tyh czto upastli**<br>
 And the home of the brave!<br>
-**Tyt dom herojev**<br>
+**Tyt dom herojev je**<br>
 <br><br>
 Facing the storm, battered and torn<br>
 Fighting for our Glorious Land!<br>
