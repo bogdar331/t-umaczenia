@@ -17,24 +17,22 @@ Shove! Go! Push!<br>
 Leave no foes left alive!<br>
 <br><br>
 Facing the storm, battered and torn<br>
-**Burja pr^ed nami, pobity i razdrti**<br>
-**Vokrug vihorov, my v potom i krov** <br>
-**grom i krov**
+**Vokrug vihorov, czely my v krvi** <br>
 Fighting for our Glorious Land!<br>
-**Bojevamo za nasz slavny kraj**<br>
+**Bojevamo za nasz kraj**<br>
 Come take our hand, together we stand<br>
-**Grabi nasza ruku, zajedno travam**o<br>
+**Grabi moju ruku, jedno travamo**<br>
 Defending our Glorious Land!<br>
 **Branimo nasz slavny kraj**<br>
 <br><br>
 Darkness falls<br>
 **Noczny mrak**<br>
 And the screams fade away<br>
-**V Ciszinu obratil krik**<br>
+**pokril tišinoju krik**<br>
 Home of the fallen<br>
-**Tyh czto upastli**<br>
+**Tyh czto sut padli**<br>
 And the home of the brave!<br>
-**Tyt dom herojev je**<br>
+**Czto sut herojami**<br>
 <br><br>
 Facing the storm, battered and torn<br>
 Fighting for our Glorious Land!<br>
