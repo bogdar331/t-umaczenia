@@ -17,7 +17,7 @@ Shove! Go! Push!<br>
 Leave no foes left alive!<br>
 <br><br>
 Facing the storm, battered and torn<br>
-**Vokrug vihorov, czely my v krvi** <br>
+**Vokrug vihorov, v ogień i krov** <br>
 Fighting for our Glorious Land!<br>
 **Bojevamo za nasz kraj**<br>
 Come take our hand, together we stand<br>
