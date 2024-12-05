@@ -20,7 +20,8 @@ Facing the storm, battered and torn<br>
 **Vokrug vihorov, ogień i krov** <br>
 Fighting for our Glorious Land!<br>
 **Bojevamo za nasz kraj**<br>
-Come take our hand, together we stand<br>
+Come take our hand, together we stand
+I Ruku nam daj<br>
 **Grabi moju ruku, jedno idemo**<br>
 Defending our Glorious Land!<br>
 **braniti nasz slavny kraj**<br>
