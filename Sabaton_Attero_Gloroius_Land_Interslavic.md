@@ -20,12 +20,10 @@ Facing the storm, battered and torn<br>
 **Vokrug vihorov, ogień i krov** <br>
 Fighting for our Glorious Land!<br>
 **Bojevamo za nasz kraj**<br>
-Come take our hand, together we stand
-
+Come take our hand, together we stand<br>
 **Jedno idemo, ruku nam daj<br>**<br>
 Defending our Glorious Land!<br>
 **braniti nasz slavny kraj**<br>
-<br><br>
 Darkness falls<br>
 **Noczny mrak**<br>
 And the screams fade away<br>
