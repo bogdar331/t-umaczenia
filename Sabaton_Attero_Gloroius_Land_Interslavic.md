@@ -18,7 +18,7 @@ As the forces arrive<br>
 Shove! Go! Push!<br>
 **Bij, phaj, trvaj**<br>
 Leave no foes left alive!<br>
-**x**
+**Nehaj ubity sut vsi vrag**
 
 <br><br>
 Facing the storm, battered and torn<br>
