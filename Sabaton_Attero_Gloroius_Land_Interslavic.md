@@ -33,7 +33,7 @@ Defending our Glorious Land!<br>
 Darkness falls<br>
 **Noczny mrak**<br>
 And the screams fade away<br>
-**Tišinoje vsi krik**<br>
+**Tišinoje jih krik**<br>
 Home of the fallen<br>
 **Krik czto sut padli**<br>
 And the home of the brave!<br>
