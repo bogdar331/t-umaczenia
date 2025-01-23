@@ -22,7 +22,7 @@ Leave no foes left alive!<br>
 
 <br><br>
 Facing the storm, battered and torn<br>
-**Vokrug vihorov,v ogień i krov** <br>
+**Vokrug vihorov, v ogień i krov** <br>
 Fighting for our Glorious Land!<br>
 **Idemo za nasz kraj**<br>
 Come take our hand, together we stand<br>
@@ -38,8 +38,5 @@ Home of the fallen<br>
 **Tyh czto sut padli**<br>
 And the home of the brave!<br>
 **Czto sut herojami**<br>
-<br><br>
-Facing the storm, battered and torn<br>
-Fighting for our Glorious Land!<br>
-Come take our hand, together we stand<br>
+<br><br>
 
