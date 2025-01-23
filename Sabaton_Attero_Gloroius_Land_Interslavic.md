@@ -35,7 +35,7 @@ Darkness falls<br>
 And the screams fade away<br>
 **Tišinoje jih krik**<br>
 Home of the fallen<br>
-**Krik czto sut padli**<br>
+**Tyh czto sut padli**<br>
 And the home of the brave!<br>
 **Czto sut herojami**<br>
 <br><br>
