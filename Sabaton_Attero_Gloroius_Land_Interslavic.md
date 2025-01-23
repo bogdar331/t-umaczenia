@@ -18,7 +18,7 @@ As the forces arrive<br>
 Shove! Go! Push!<br>
 **Bij, phaj, trvaj**<br>
 Leave no foes left alive!<br>
-**Nehaj ubity sut vsi vrag**
+**Bude ubity vsi vrag**
 
 <br><br>
 Facing the storm, battered and torn<br>
@@ -26,7 +26,7 @@ Facing the storm, battered and torn<br>
 Fighting for our Glorious Land!<br>
 **Idemo za nasz kraj**<br>
 Come take our hand, together we stand<br>
-**Jedin nasz spjev i jedin nasz gnjev**
+**Jedin nasz spjev i jedin nasz gnjev**<br>
 Defending our Glorious Land!<br>
 **Branimo nasz slavny kraj**<br><br>
 
