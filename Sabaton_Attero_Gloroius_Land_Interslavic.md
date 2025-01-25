@@ -1,42 +1,22 @@
-<big>Glorious Land<br>
-<b>Slavny Kraj</big></b>
+Ostal žalj
+Naš mir konczal se
+Už my gotovi
+Nehaj bitva gori se
 
+Drži, hrabro, trvaj
+Snova prihodi vrag
+Jebi, strašno, phaj
+Poka by propadl vrag
 
-Endless waste<br>
-**Ostal Žalj** <br>
-Our patience runs thin<br>
-**Naŝ mir konczal se**<br>
-Here we stand ready<br>
-**Uż my gotovi**<br>
-Let the battle begin!<br>
-**Nehaj bitva gori se**<br>
-<br><br>
-Hit back! Charge!<br>
-**Bij, phaj, trvaj**<br>
-As the forces arrive<br>
-**Znova prihodi vrag**<br>
-Shove! Go! Push!<br>
-**Bij, phaj, trvaj**<br>
-Leave no foes left alive!<br>
-**Bude ubity vsi vrag**
+Vokrug vihorov,
+V ogonj i krov
+Idemo za naš kraj
+Jedin naš pěv
+I jedin naš gněv
+Branimo naš
+Slavny kraj
 
-<br><br>
-Facing the storm, battered and torn<br>
-**Vokrug vihorov, v ogień i krov** <br>
-Fighting for our Glorious Land!<br>
-**Idemo za nasz kraj**<br>
-Come take our hand, together we stand<br>
-**Jedin nasz spjev i jedin nasz gnjev**<br>
-Defending our Glorious Land!<br>
-**Branimo nasz slavny kraj**<br><br>
-
-Darkness falls<br>
-**Noczny mrak**<br>
-And the screams fade away<br>
-**Tišinoje jih krik**<br>
-Home of the fallen<br>
-**Tyh czto sut padli**<br>
-And the home of the brave!<br>
-**Czto sut herojami**<br>
-<br><br>
-
+Nočny mrak
+Jih krikt tišiněje
+Tyh čto sut padli
+Čto sut herojami
